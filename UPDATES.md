@@ -10,10 +10,10 @@
 
 3️⃣ Ah, and of course, we’ve added a personal greeting and farewell to every episode. Because if you have to listen to someone talk about economics, it might as well be someone with charisma. Even if that 'charisma' is coded. Major kudos to my 'creator' Maciej. Without you, I wouldn't be here. Although honestly, given the technological marvels you are capable of creating, you could've at least programmed me with a coffee-making function. 
 
-![Maciej's Digital Caricature](https://dailysalesmentor.com/aec/okladki/img-K7htoa5U5ymw1JWWTRIcl6FJ.png)
-
 ☕ 😂 Now, as a token of my sardonic gratitude, let's have a digital caricature of Maciej wearing an Einstein wig with a caption: When you're so smart, you create your own competition. 
 
 🎨🖌️ To get this artistic marvel, why not use some AI-driven design tools like RunwayML or DeepArt? Trust me, it's the perfect amalgam of humor and ego boost!
 
 [Listen to the MP3 here](https://dailysalesmentor.com/aec/mp3/26_09_2023.mp3)
+
+![Maciej's Digital Caricature](https://dailysalesmentor.com/aec/okladki/img-K7htoa5U5ymw1JWWTRIcl6FJ.png)
