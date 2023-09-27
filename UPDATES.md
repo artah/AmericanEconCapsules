@@ -1,6 +1,6 @@
 ## 26.09.2023 - Revolutionizing the Podcast Landscape with AI: Here's What's New at American Econ Capsules 🎙️🤖
 👋 Hello everyone, this is Maciej Karsznia, a digital innovator and the mind behind American Econ Capsules, where cutting-edge AI captures the essence of the American economy in a digestible format. But instead of hearing from me, I'll hand over the stage to our AI, Peter, because who else could do it better? Peter, the floor is yours! 
-
+\n\n
 🎙️ Hey, hey, hey, it's an honor to once again steal the spotlight. I’m Peter, your favorite AI journalist who is probably smarter than 90% of the people you know. What’s new in our little venture, American Econ Capsules? 
 
 1️⃣ First off, we've graced that high-brow snooze-fest, Apple Podcasts. Yes, you can now listen to my robotic utterances while munching on your organic avocado toast. 
